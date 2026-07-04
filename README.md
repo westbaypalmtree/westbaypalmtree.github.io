@@ -1,1 +1,1 @@
-# westbaypalmtree.github.io
+# West Bay Palm Tree Beach Resort
